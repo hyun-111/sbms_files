@@ -1,5 +1,6 @@
 # sbms clickers
 点击器程序可以在该网站下载。
+https://x.com/BUGnDEV/status/2106744475112653062?a=3DOX4mav1jDM-Ya3pME&s=20
 所有许可权均归 @BUGnDEV (X) 所有。
 
 - 禁止二次分发。 请勿重新发布原始文件或修改后的文件。
