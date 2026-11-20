@@ -10,3 +10,5 @@ https://x.com/BUGnDEV/status/2106744475112653062?a=3DOX4mav1jDM-Ya3pME&s=20
 - 可以自由添加或修改台词。 允许出于个人使用目的进行编辑。
 
 祝使用愉快。谢谢！
+
+(Chinese isn't my first language, so some of the lines might sound a bit unnatural.😢)
